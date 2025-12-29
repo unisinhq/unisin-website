@@ -8,7 +8,7 @@ Creators receive important messages everywhere: Instagram, email, LinkedIn, Disc
 ---
 
 ## 🎯 Who UNISIN Is For
-- Creators with 25k+ followers
+- Creators with 50k+ followers
 - Influencers working with brands
 - Creators with managers or assistants
 - Agencies managing creator communications
